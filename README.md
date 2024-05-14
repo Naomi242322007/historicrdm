@@ -1,1 +1,1 @@
-The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
+The ancient city of Babylon, famous for the Hanging Gardens, thrived around 1800 BC.
