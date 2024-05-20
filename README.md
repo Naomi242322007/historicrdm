@@ -1,1 +1,1 @@
-The ancient city of Babylon, famous for the Hanging Gardens, thrived around 1800 BC.
+Leonardo da Vinci painted the Mona Lisa between 1503 and 1506.
