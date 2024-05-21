@@ -1,1 +1,1 @@
-Leonardo da Vinci painted the Mona Lisa between 1503 and 1506.
+Michelangelo completed the ceiling of the Sistine Chapel in 1512.
