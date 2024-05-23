@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
