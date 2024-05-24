@@ -1,1 +1,1 @@
-The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
+The first modern Olympics were held in Athens, Greece, in 1896.
