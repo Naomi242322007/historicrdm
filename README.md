@@ -1,1 +1,1 @@
-The first modern Olympics were held in Athens, Greece, in 1896.
+The Russian Revolution in 1917 led to the overthrow of the Tsarist autocracy and the establishment of the Soviet Union.
