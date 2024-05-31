@@ -1,1 +1,1 @@
-Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
