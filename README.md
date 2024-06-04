@@ -1,1 +1,1 @@
-The fall of the Soviet Union in 1991 marked the end of the Cold War era.
+The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
