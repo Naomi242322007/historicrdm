@@ -1,1 +1,1 @@
-The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
+World War I, also known as the Great War, lasted from 1914 to 1918.
