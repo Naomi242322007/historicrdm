@@ -1,1 +1,1 @@
-The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
+The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
