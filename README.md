@@ -1,1 +1,1 @@
-The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
+The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
