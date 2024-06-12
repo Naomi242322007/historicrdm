@@ -1,1 +1,1 @@
-Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
+The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
