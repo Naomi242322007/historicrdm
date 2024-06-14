@@ -1,1 +1,1 @@
-Leonardo da Vinci painted the Mona Lisa between 1503 and 1506.
+The ancient city of Rome was founded in 753 BC.
