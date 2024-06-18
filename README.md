@@ -1,1 +1,1 @@
-Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
