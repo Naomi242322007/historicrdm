@@ -1,1 +1,1 @@
-The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
+The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
