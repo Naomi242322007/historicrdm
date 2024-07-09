@@ -1,1 +1,1 @@
-The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
+The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
