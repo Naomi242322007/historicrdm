@@ -1,1 +1,1 @@
-The Zimmermann Telegram, intercepted by British intelligence in 1917, played a crucial role in the United States' decision to enter World War I.
+The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
