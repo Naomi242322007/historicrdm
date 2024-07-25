@@ -1,1 +1,1 @@
-The Arab Spring, a wave of protests and uprisings, began in late 2010.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
