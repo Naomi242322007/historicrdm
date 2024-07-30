@@ -1,1 +1,1 @@
-The first modern Olympics were held in Athens, Greece, in 1896.
+The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
