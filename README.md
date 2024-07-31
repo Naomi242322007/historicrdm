@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
